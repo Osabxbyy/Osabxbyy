@@ -2,7 +2,7 @@
 - 👀 I’m interested in soft life with maximum enjoyment.
 - 🌱 I’m currently learning web3/crypto related stuffs.
 - 💞️ I’m looking to collaborate with like minded people.
-- 📫 How to reach me on gmail.
+- 📫 You can't see me.
 - 😄 Pronouns: I'M HER!!
 - ⚡ Fun fact: I can't go the whole day without overthinking.😄
 
